@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @dvkesari / DV / duraisamy veerakesari
+- 👀 I’m interested in FINance & TECHnology
+- ✍🏼 I write at dvkesari.com & at my X profile x.com/@veerakesari
+- 🌱 I’m currently building an atomic scale, web & android first, dynamic ERP solution for small shopkeepers in India
+- 💞️ I’m looking to collaborate on [right now I can't think of anything] [after I build a minimum working prototype]
+- 📫 How to reach me ... dveerakesari@gmail.com
+- 😄 Pronouns: ...He/His
+- ⚡ Fun fact: ...🤷🏻‍♂️
